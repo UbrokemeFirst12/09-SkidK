@@ -2,7 +2,7 @@
 
 ## [~~4/Ren/SkidK Replit~~](https://replit.com/@Watabou)
 ## [~~Krypton/SkidK Replit~~](https://replit.com/@VoltTools)
-
+## [~~Krypton/SkidK  GitHub~~](https://github.com/KryptonW)
 
 Keeping hosting ur shit on replit 
 
