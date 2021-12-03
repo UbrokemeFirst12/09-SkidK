@@ -1,9 +1,18 @@
 # 09-SkidK
 
 ## [~~4/Ren/SkidK Replit~~](https://replit.com/@Watabou)
-## [~~4/Ren/SkidK Twitter~~](https://replit.com/@Watabou13)
+## [~~4/Ren/SkidK Twitch~~](https://twitch.tv/adventwatabou)
+## [~~4/Ren/SkidK YT~~](https://www.youtube.com/channel/UCdmIWe2nOlZmkH-wedvUFLQ/)
+## [~~4/Ren/SkidK Twitter~~](https://twitter.com/@Watabou13)
 ## [~~Krypton/SkidK Replit~~](https://replit.com/@VoltTools)
 ## [~~Krypton/SkidK  GitHub~~](https://github.com/KryptonW)
+
+
+
+## About 4Ren/Watabou:
+![Age: `13`](https://user-images.githubusercontent.com/87048262/144661347-c6f22b9f-2e62-45ab-b8b5-7ddce66b9ef9.png)
+Skid: `True`
+Hated: `OFC`
 
 Keeping hosting ur shit on replit 
 
