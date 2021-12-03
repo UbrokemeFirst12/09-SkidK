@@ -11,8 +11,11 @@
 
 ## About 4Ren/Watabou:
 Age: `13`
+
 Skid: `True`
+
 Hated: `OFC`
+
 SS:
 ![sslmao](https://user-images.githubusercontent.com/87048262/144661347-c6f22b9f-2e62-45ab-b8b5-7ddce66b9ef9.png)
 
