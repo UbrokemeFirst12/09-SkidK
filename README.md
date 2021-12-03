@@ -1,6 +1,7 @@
 # 09-SkidK
 
 ## [~~4/Ren/SkidK Replit~~](https://replit.com/@Watabou)
+## [~~4/Ren/SkidK Twitter~~](https://replit.com/@Watabou13)
 ## [~~Krypton/SkidK Replit~~](https://replit.com/@VoltTools)
 ## [~~Krypton/SkidK  GitHub~~](https://github.com/KryptonW)
 
