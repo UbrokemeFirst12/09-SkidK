@@ -2,6 +2,7 @@
 
 ## [~~4/Ren/SkidK Replit~~](https://replit.com/@Watabou)
 ## [~~4/Ren/SkidK Twitch~~](https://twitch.tv/adventwatabou)
+## [~~4/Ren/SkidK IG~~(LMK IF ITS INVALID)](https://ww.instagram.com/luxwatabou/)
 ## [~~4/Ren/SkidK YT~~](https://www.youtube.com/channel/UCdmIWe2nOlZmkH-wedvUFLQ/)
 ## [~~4/Ren/SkidK Twitter~~](https://twitter.com/@Watabou13)
 ## [~~Krypton/SkidK Replit~~](https://replit.com/@VoltTools)
